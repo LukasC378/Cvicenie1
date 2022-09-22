@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Dávid Laurovič
-2.
+2. Marián Kica
 3.
 4.
