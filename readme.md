@@ -14,5 +14,5 @@ Nas tim tvoria clenovia:
 
 1. Dávid Laurovič
 2. Marián Kica
-3.
+3. Lukáš Cauner
 4.
